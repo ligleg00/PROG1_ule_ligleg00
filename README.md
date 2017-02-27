@@ -1,1 +1,0 @@
-# prog1_ule_ligleg00
